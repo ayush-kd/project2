@@ -1,1 +1,1 @@
-# Craated by ayush dudhe
+# Created by ayush dudhe
